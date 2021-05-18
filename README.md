@@ -1,0 +1,2 @@
+# yazaroguzhan.github.io
+ödev
