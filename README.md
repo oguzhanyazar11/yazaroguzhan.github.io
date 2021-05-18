@@ -1,2 +1,0 @@
-# yazaroguzhan.github.io
-ödev
